@@ -14,4 +14,4 @@ Changelog:
 
 XiaomerroOS-Beta10.05.2022
 
-- powstanie
+Ni3znnyNikoTu/Ni3znnyNikoTu/Ni3znnyNikoTu/Ni3znnyNikoTu/
